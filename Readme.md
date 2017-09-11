@@ -9,3 +9,4 @@ Tenho que estudar mais essa bagaçaaa
 Qualquer coisa
 
 Testando o reset soft
+
